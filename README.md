@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Faqih Bahreisy, call rei.
-- 👀 I’m interested in conding, gaming, and loving. especially you.
+- 👀 I’m interested in coding, gaming, and loving. especially you.
 - 🌱 I’m currently learning to sleep well.
 - 💞️ I’m looking to collaborate on your heart!
 - 📫 How to reach me on instagram @reikun07
